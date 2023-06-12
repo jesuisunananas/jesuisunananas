@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @jesuisunananas
-- I am a second year student at Foothill College and I will be transferring to a UC in fall 2023.
+- I am an incoming student at UC Berkeley this fall.
 - 🌱 I’m currently learning/trying to learn computer science.
 - Take a look at my website arjunrewari.com 😁
