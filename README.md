@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @jesuisunananas
-- I am an incoming student at UC Berkeley this fall.
+- I am a current junior at UC Berkeley. I am an undergraduate researcher at BAIR.
 - 🌱 I’m currently learning/trying to learn computer science.
 - Take a look at my website arjunrewari.com 😁
