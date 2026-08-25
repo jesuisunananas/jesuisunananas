@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @jesuisunananas
 - 🌱 I’m currently learning/trying to learn computer science.
-- Take a look at my website arjunrewari.com 😁
+- Take a look at my website! 😁
